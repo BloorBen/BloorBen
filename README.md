@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BloorBen
+- 👋 Hi, I’m @BlurBen
 - 👀 I’m interested in games
 - 🌱 I’m currently learning in school
 - 💞️ I’m looking to collaborate on everyone
